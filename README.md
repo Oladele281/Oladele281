@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Oladele281
-- 👀 I’m interested in IT department
-- 🌱 I’m currently learning UIUX
+- 👀 I’m looking forward to grow and learn new things in IT department
+- 🌱 I’m a UIUX Designer with years of experience creating prototype
 - 💞️ I’m looking to collaborate on UI UX project
 - 📫 How to reach me chat me on WhatsApp on +2348142174723
 
